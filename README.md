@@ -1,1 +1,1 @@
-some shitty-peetey
+some shity-peetey
